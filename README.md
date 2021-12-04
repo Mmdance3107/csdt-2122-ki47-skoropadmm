@@ -1,1 +1,1 @@
-# csdt-skoropadmm-2122
+# csdt-2122-ki47-skoropadmm
